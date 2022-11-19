@@ -1,1 +1,1 @@
-Projetinho vai serIA desenvolvido aqui
+Projetinho vai seria desenvolvido aqui
